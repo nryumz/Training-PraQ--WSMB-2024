@@ -1,1 +1,1 @@
-# First Training for PraQ WSMB 2024sss
+# First Training for PraQ WSMB 2024
